@@ -1,1 +1,1 @@
-# Gambling-Harm-Prevention-Strategy-Gambit-Wise-x-Newcastle-City-Council
+# Gambling-Harm-Prevention-Strategy-Gambit-Wise X Newcastle-City-Council
